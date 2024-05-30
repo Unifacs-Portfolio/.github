@@ -1,1 +1,1 @@
-Essa organização contém trabalhos e projetos realizados durante a formação acadêmica
+Um portfólio para todos os projetos e pesquisas realizados durante a formação acadêmica
